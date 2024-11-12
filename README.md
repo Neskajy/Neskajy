@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Neskajy
+- 👋 Hi, I’m Nikolay
 - 👀 I’m interested in website development
-- 💞️ I’m looking to collaborate on Google/Microsoft/Yandex
+- 💞️ I want to collaborate with you
 - 📫 How to reach me in telegram: @N3skajy, https://t.me/dvegriz
