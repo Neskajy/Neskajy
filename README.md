@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Nikolay
 - 👀 I’m interested in website development
 - 💞️ I want to collaborate with you
-- 📫 How to reach me in telegram: @N3skajy
+- 📫 How to reach me in telegram: @N3side
